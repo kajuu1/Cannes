@@ -1,0 +1,2 @@
+# Cannes
+You can shop the same product which Deepika padukone is wearing in #CANNES! Deepika padukone, Sonam kapoor and Aishwarya Rai is flaunting the fashion in “CANNES” . you can also shop same product which you like in “CANNES”... Now your product is just a one click away from you. Go on my toch and shop with video.This is the trend of shopping now you can shop same product which your seeing in the video. By Mytoch.com you can discover watch and purchase.  Toch - watch | Discover | Shop     
